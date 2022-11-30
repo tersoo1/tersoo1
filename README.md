@@ -2,7 +2,7 @@
 - 👀 I’m interested in website design crytocurency, cloud enginnering, graphic design
 - 🌱 I’m currently learning crypto, website design, graphics design 
 - 💞️ I’m looking to collaborate on designs and crypto
-- 📫 How to reach me +2348086231931
+- 📫 How to reach me +2348086231921
 
 <!---
 tersoo1/tersoo1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
